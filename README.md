@@ -1,0 +1,1 @@
+guru blocks vibe coding
